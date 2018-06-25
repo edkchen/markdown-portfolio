@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. futility! :sparkles:
+2. failure! :hearts:
+3. fucking everything! :+1:
